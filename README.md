@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align=center> 
+  <b>Purrigiri INFO! ₍^. .^₎⟆</b>
 
-<!--
-**purrigiri/purrigiri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img width="330" height="300" src="https://i.pinimg.com/736x/2d/fc/4f/2dfc4f176911b935d07dede14812f055.jpg">
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <b> Links:</b><br>
+  <a href="https://www.instagram.com/ruemerang/">ART</a> ᨐ
+  <a href="https://en.pronouns.page/@nekogiri">PRONOUNS</a> ᨐ
+  <a href="https://juggiri.straw.page">STRAWPAGE</a>
+  </b><br>
+<p align=center> 
+  <b>⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘</b>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  ᗢ Rue </b><br>
+  he/him  .  17 . Jul4 </b><br>
+  POC  .  ENG </b><br>
+  </b><br>
+  <b> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </b><br>
+  <b> "I'll be sure to wake you up, Cynic hero." </b><br>

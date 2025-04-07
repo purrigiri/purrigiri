@@ -9,7 +9,7 @@
   <b> Links:</b><br>
   <a href="https://www.instagram.com/ruemerang/">ART</a> ᨐ
   <a href="https://en.pronouns.page/@nekogiri">PRONOUNS</a> ᨐ
-  <a href="https://juggiri.straw.page">STRAWPAGE</a>
+  <a href="https://hyomeows.straw.page">STRAWPAGE</a>
   </b><br>
 <p align=center> 
   <b>⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘</b>

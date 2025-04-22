@@ -8,7 +8,7 @@
 <p align="center">
   <b> Links:</b><br>
   <a href="https://x.com/chimeowma">ART</a> ᨐ
-  <a href="https://en.pronouns.page/@nekogiri">PRONOUNS</a> ᨐ
+  <a href="https://en.pronouns.page/@cyborgrensuke">PRONOUNS</a> ᨐ
   <a href="https://hyomeows.straw.page">STRAWPAGE</a>
   </b><br>
 <p align=center> 

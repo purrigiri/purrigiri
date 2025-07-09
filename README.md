@@ -2,7 +2,7 @@
   <b>Purrigiri INFO! ₍^. .^₎⟆</b>
 
 <p align="center">
-  <img width="330" height="300" src="https://i.pinimg.com/736x/2d/fc/4f/2dfc4f176911b935d07dede14812f055.jpg">
+  <img width="330" height="344" src="https://cdn.discordapp.com/attachments/1212010538293399657/1392406721145864283/image.png?ex=686f6b4f&is=686e19cf&hm=7e35e7f8009a36ff0042ae5e047dfa62c9e26deca808595c55c16b8021a07646&">
 </p>
 
 <p align="center">

@@ -16,7 +16,7 @@
 
 <p align="center">
   ᗢ Rue </b><br>
-  he/him  .  17 . Jul4 </b><br>
+  he/him  .  18 . Jul4 </b><br>
   POC  .  ENG </b><br>
   </b><br>
   <b> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </b><br>
